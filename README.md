@@ -1,0 +1,1 @@
+# The-Four-States-of-Entropy-Reconciling-the-Farid-Descriptive-Framework-with-Mainstream-Physics
